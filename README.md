@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Anand Sadasivan
 - 🧑‍🏫 Technical Trainer
-- 📱 Reach me @anand_629
+- 📱 Reach me @_anandsadasivan
 - 💬 Ph. +91 6379966089
